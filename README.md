@@ -8,6 +8,8 @@ AdPlexity stands as a leading competitive intelligence platform for digital mark
 
 This guide covers all available AdPlexity promo codes, detailed pricing information, and instructions on how to apply these savings to your subscription. We've verified all coupon codes directly from official sources to ensure they work in May 2025.
 
+[![YES, GIVE ME MY -30% OFF NOW!](https://res.cloudinary.com/drzqec0oi/image/upload/v1747301480/YES_GIVE_ME_MY_-30_OFF_NOW_bwc5di.png)](https://adplexity.com/bloggingeclipse/)
+
 ## What is AdPlexity?
 
 AdPlexity is a premium ad intelligence platform that helps marketers analyze competitors' advertising strategies across multiple channels. It collects data from thousands of advertisers, providing insights into which campaigns are performing well.

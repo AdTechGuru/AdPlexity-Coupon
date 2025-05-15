@@ -8,7 +8,7 @@ AdPlexity stands as a leading competitive intelligence platform for digital mark
 
 This guide covers all available AdPlexity promo codes, detailed pricing information, and instructions on how to apply these savings to your subscription. We've verified all coupon codes directly from official sources to ensure they work in May 2025.
 
-[![YES, GIVE ME MY -30% OFF NOW!](https://res.cloudinary.com/drzqec0oi/image/upload/v1747302117/YES_GIVE_ME_MY_-30_OFF_NOW_bdar8d.png)](https://adplexity.com/bloggingeclipse/)
+[![YES, GIVE ME MY -30% OFF NOW!](https://res.cloudinary.com/drzqec0oi/image/upload/v1747302264/YES_GIVE_ME_MY_-30_OFF_NOW_ekfipg.png)](https://adplexity.com/bloggingeclipse/)
 
 ## What is AdPlexity?
 

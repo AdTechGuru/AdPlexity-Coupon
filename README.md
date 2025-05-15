@@ -176,4 +176,4 @@ To claim your discount, simply visit [https://adplexity.com/bloggingeclipse/](ht
 
 Remember that combining your coupon with an annual subscription adds an extra 17% discount, maximizing your savings on this essential marketing research tool.
 
-**Click Here to Claim Your Discount Now**
+[![Click Here to Claim Your Discount Now](https://res.cloudinary.com/drzqec0oi/image/upload/v1747300479/Click_Here_to_Claim_Your_Discount_Now_uibtlk.png)](https://adplexity.com/bloggingeclipse/)

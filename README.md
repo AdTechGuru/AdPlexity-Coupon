@@ -61,6 +61,8 @@ Applying your AdPlexity discount code is straightforward:
 
 The discount applies automatically when you use the special link above. For other coupon codes, you may need to enter them during the checkout process.
 
+**Note: Combining your coupon with an annual subscription adds an extra 17% discount, so don't wait and maximize your savings today!**
+
 ## AdPlexity Products: Features and Benefits
 
 ### **AdPlexity Push** ($129/month with coupon)
@@ -171,5 +173,7 @@ The AdPlexity coupon code **"BLOGGINGECLIPSE"** provides significant savings on 
 With these AdPlexity discount codes, you can access premium advertising intelligence at a much lower cost, helping you develop more profitable marketing campaigns while reducing your research expenses.
 
 To claim your discount, simply visit [https://adplexity.com/bloggingeclipse/](https://adplexity.com/bloggingeclipse/) and select your preferred AdPlexity product. The discount will be automatically applied, giving you immediate access to this powerful ad intelligence platform at the best available price.
+
+Remember that combining your coupon with an annual subscription adds an extra 17% discount, maximizing your savings on this essential marketing research tool.
 
 **Click Here to Claim Your Discount Now**

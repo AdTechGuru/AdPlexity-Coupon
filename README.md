@@ -61,7 +61,7 @@ Applying your AdPlexity discount code is straightforward:
 
 The discount applies automatically when you use the special link above. For other coupon codes, you may need to enter them during the checkout process.
 
-**Note: Combining your coupon with an annual subscription adds an extra 17% discount, so don't wait and maximize your savings today!**
+**📝Note: Combining your coupon with an annual subscription adds an extra 17% discount, so don't wait and maximize your savings today!**
 
 ## AdPlexity Products: Features and Benefits
 
